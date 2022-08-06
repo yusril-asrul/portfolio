@@ -1,1 +1,1 @@
-Hai
+Silahkan Pindah ke : https://yusril-asrul.github.io/portfolio/
