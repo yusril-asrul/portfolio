@@ -1,1 +1,1 @@
-https://yusril-asrul.github.io/portfolio/
+Ini hanya web sederhana, jika ingin memakai templatenya dipersilahkan.
